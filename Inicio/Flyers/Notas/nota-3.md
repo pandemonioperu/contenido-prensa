@@ -1,0 +1,3 @@
+El titular del **Ministerio de Transportes y Comunicaciones (MTC)**, César Sandoval, aseguró que su cartera busca una reunión con los representantes de la **Municipalidad Metropolitana de Lima (MML)** para evaluar la viabilidad del **proyecto del Tren Lima-Chosica**. Así lo reveló durante una conferencia de prensa de la Presidencia del Consejo de Ministros.
+
+> "No vamos a especular, vamos a esperar que nos respondan y vamos a esperar conversar, concluido eso el pueblo peruano estará informado constantemente, cuál va a ser el desarrollo y las conclusiones de dichas conversaciones y si es viable", declaró Sandoval.
